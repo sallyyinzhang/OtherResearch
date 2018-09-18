@@ -1,2 +1,1 @@
 # Other Research
-Other research 
